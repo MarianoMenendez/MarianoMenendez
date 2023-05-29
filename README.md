@@ -19,7 +19,7 @@
 
 🌐¿𝗧𝗲 𝗽𝘂𝗲𝗱𝗼 𝗮𝘆𝘂𝗱𝗮𝗿? 🗣️ 𝗘𝘀𝗰𝗿𝗶́𝗯𝗲𝗺𝗲 𝗮:
 
-☛✉️ mariano.menendez@gmail.com
+☛✉️ mariano.menendez96@gmail.com
 
 🌐¿Cuales son mis redes?, te las dejo acá abajo 😉:
 [LinkedIn]
